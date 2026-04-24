@@ -72,7 +72,7 @@
 ## 📫 Connect With Me
 - 📧 Email: noruzzamanrahat8@gmail.com
 - 🌐 Portfolio: coming soon...
-
+- 🔗 LinkedIn: https://www.linkedin.com/in/md-noruzzaman-6510b2337?utm_source=share_via&utm_content=profile&utm_medium=member_android
 ---
 
 ⭐ *“Code. Learn. Build. Repeat.”*
